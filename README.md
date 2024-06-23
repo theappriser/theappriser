@@ -3,4 +3,4 @@
 FEEL FREE TO INT WITH MEE!!! i love talkign to people & c+h is also okay 
 
 
-![eeekk](https://cdn.discordapp.com/attachments/904001063055687752/1236794025818722304/IMG_4960.gif?ex=66394db2&is=6637fc32&hm=069b093cc8aaef5619e4bac868cf746aac465bd4cfb422765055db8efffbe325&)
+![ryoj](https://github.com/theappriser/theappriser/assets/165829625/f2fd4a91-4778-4fb5-a5db-9a1e1d3d92d9)
