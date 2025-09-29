@@ -1,7 +1,6 @@
 ![tumblr_7c99d34d854570a5c076fd6137580c7d_7d45752e_100](https://github.com/theappriser/theappriser/assets/165829625/ea112ef7-cca4-46ab-a2a1-8aefa0aff2f5) 
 
-FEEL FREE TO INT WITH MEE!!! i love talkign to people & c+h is also okay, 
-im usually by genshin area or the path beside it under spawn !
+i love yaoi porn and code geass PLS INT WITH ME i love talking to ppl
 
 
-![ryoj](https://github.com/theappriser/theappriser/assets/165829625/f2fd4a91-4778-4fb5-a5db-9a1e1d3d92d9)
+![eiden](https://static.wikia.nocookie.net/yaoiboyslove/images/7/7d/NUC_anim_Eiden.gif/revision/latest/smart/width/300/height/300?cb=20220518172838)
